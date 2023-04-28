@@ -1,4 +1,4 @@
-## Hi..! I'm Felipe Simão 😊✋
+##                                                         Hi! ✋ I'm Felipe Simão 
 
 - Python Student
 
